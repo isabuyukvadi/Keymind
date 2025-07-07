@@ -27,4 +27,4 @@ MIT License — Free to use, modify, and distribute.
 
 ## 🤝 Contact
 Built by İsa (freelance designer + product creator).  
-Reach me at: your@email.com
+Reach me at: isabuyukvadi@gmail.com
